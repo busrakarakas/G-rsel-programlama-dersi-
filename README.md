@@ -1,0 +1,1 @@
+# G-rsel-programlama-dersi-
