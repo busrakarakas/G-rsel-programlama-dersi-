@@ -1,1 +1,1 @@
-# G-rsel-programlama-dersi-
+# Görsel-programlama-dersi-
